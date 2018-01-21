@@ -1,3 +1,3 @@
 # awgeshit.com
-lord pretty flacko
 http://awgeshit.com/
+lord pretty flacko
